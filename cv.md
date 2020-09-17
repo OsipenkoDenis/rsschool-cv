@@ -8,7 +8,7 @@
 
 ### About
 
-Realible and dedicated.
+Reliable and dedicated.
 I have an immediate aim: to become a FrontEnd Developer before April 2021.
 
 ### Skils
